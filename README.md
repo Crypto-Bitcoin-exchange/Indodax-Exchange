@@ -1,6 +1,6 @@
 # Indodax-Exchange
 
-<ahref="https://coinpedia.org/exchange/indodax-review/">What is Indodax?</A> 
+<a href="https://coinpedia.org/exchange/indodax-review/">What is Indodax?</A> 
 
 Indodax is an online trade situated in Indonesia where clients can exchange Bitcoin and different resources with Indonesian cash Rupiah. Indodax was recently known as Bitcoin Indonesia, as it changed its name in the year 2018. 
 
